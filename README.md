@@ -1,1 +1,2 @@
 Deanna Ireland
+irelandd@oregonstate.edu
